@@ -47,7 +47,7 @@ IEPL/IPLC专线</br>
 |       FlyBit机场        | [官网](https://www.fastfastfast.buzz/#/register?code=IEXOJC66)<br />[备用地址1](https://goflybit.com/#/register?code=IEXOJC66)<br />[备用地址2](https://flybit.vip/#/register?code=IEXOJC66) |       36元 128G        |  15元 128G/月  | 专线+中转  | 2024年8月  |          1x          | 香港、日本、台湾、新加坡、美国、韩国、俄罗斯、澳大利亚、巴西、印度、英国、德国、阿联酋、马来西亚、越南、泰国、立陶宛、瑞典、法国、等 |   5k+    |
 |         夜煞云          | [官网](https://mm.goyesha.com/#/register?code=cJwt6H9d)<br />[备用地址](https://dc.yesha.pro/#/register?code=cJwt6H9d) |       106元 400G       |  10元 138G/月  | 专线+中转  | 2022年11月 | 默认无倍率<br />家宽2x | 香港、日本、台湾、新加坡、美国                               |   6k+    |
 |        魔戒机场         | [官网](https://mojie.host/register?aff=DCmnZB0B)<br />[备用地址1](http://mojie.co/register?aff=DCmnZB0B)<br />[备用地址2](https://mojie.app/register?aff=DCmnZB0B) |      19.9元 130G       |      :x:       | 全中转线路 | 2020年11月 |         无倍率         | 日本、新加坡、香港、韩国、台湾、印度、美国、加拿大、德国、英国、越南、俄罗斯、乌克兰、土耳其、尼日利亚 |   9w+    |
-|        牛逼机场         | [官网](666.66jc.top/#/login?code=QI1HqI99)                    |      13.9元 200G       | 7.4元 1000G/月 | 全中转线路 |   2024年   |         无倍率         | 香港、新加坡、日本、台湾、亚特兰大、凤凰城、德国、迈阿密     |  1.4w+   |
+|        牛逼机场         | [官网](https://666.66jc.top/#/login?code=QI1HqI99)                    |      13.9元 200G       | 7.4元 1000G/月 | 全中转线路 |   2024年   |         无倍率         | 香港、新加坡、日本、台湾、亚特兰大、凤凰城、德国、迈阿密     |  1.4w+   |
 |        超级跑车         | [官网](https://paocheyoo.com?path=register&code=BuKTHGYZ)    |       35元 200G        |  8元 100G/月   |  隧道中转  |   2024年   |        1-2倍率         | 香港、美国、新加坡、台湾、日本                               |          |
 
 
